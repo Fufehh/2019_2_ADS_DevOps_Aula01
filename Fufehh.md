@@ -1,0 +1,2 @@
+  No momento não tenho em mente exatamente qual área da computação gostaria de seguir, porém as áreas que são mais voltadas à front-end me parecem mais atrativas. Áreas voltadas à linguagens de programação mais complexas e de hardware não me atraem, apesar de achá-las interessantes.
+  Igualmente à área de atuação, não tenho em mente um tipo de empresa que gostaria de trabalhar, devido ao fato de que nunca trabalhei, então não tenho uma base para ter o que falar sobre este assunto.
